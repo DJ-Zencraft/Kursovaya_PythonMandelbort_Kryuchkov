@@ -1,0 +1,1 @@
+# Kursovaya_PythonMandelbort_Kryuchkov
